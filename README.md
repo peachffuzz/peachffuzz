@@ -17,4 +17,16 @@ I wubwub josef
 ![Alt text](https://spotify-recently-played-readme.vercel.app/api?user=nz98rvew42lcp04soqvwq931x)
 
 
+
+
+𝐀𝐝𝐝 𝐦𝐞 𝐨𝐧 𝐃𝐢𝐬𝐜𝐨𝐫𝐝 !
+
+￬￬
+
+[![Button Text](https://64.media.tumblr.com/6374d9a421a8224798485bee6796d5a7/96f7fb4ed53e9d3f-42/s100x200/8db8077c2669fab385b458afc27f5be4efb357ff.gifv)](https://discord.gg/MYuYg4JD)
+
+ᴛᴀᴘ ɪᴛ
+
+
+
 </div>
