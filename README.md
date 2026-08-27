@@ -1,6 +1,6 @@
 <div align="center">
   
-am I ever enough? . probably not .
+I love every1 who cuddles me. cuddles r FREE no matter what, dont have to ask !! unless someone's name says otherwise then be cautious idk. 
 
 ![banner](https://64.media.tumblr.com/145f804ea37c605babb54d41809120dc/277029bb61625c4c-57/s500x750/2f1e9016e8e4a126e915dfdc3a01ebdd4ca785c2.webp)
 
