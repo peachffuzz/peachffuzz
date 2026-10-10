@@ -14,7 +14,7 @@ I love creep1 and 2.
 
 
 
-![Alt text](https://spotify-recently-played-readme.vercel.app/api?user=nz98rvew42lcp04soqvwq931x)
+![Alt text](https://spotify-recently-played.jeffreyca.workers.dev/svg?user=nz98rvew42lcp04soqvwq931x)
 
 
 ![banner](https://64.media.tumblr.com/79e7329a93439b665bbaee070ec70483/c3b14e17e06f27f5-05/s640x960/77abe733286b9c588f61129ac2659c683fe67f21.gifv)
