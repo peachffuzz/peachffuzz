@@ -1,6 +1,6 @@
 <div align="center">
   
-very c * h friendly . no need to ask as i hate seeing my pony alone <3 
+very c * h friendly . no need to ask as i love cuds and hate seeing my pony alone <3 
 
 always afk , keep that in mind . whisp2reach me
 
