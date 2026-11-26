@@ -12,7 +12,7 @@ I WILL make a strawpage eventually... ermm.. ok? ..ok..
 
 ![banner](https://64.media.tumblr.com/43604be5e9e9970a4e9b9f02315f0b1e/5758e596263df7d9-e5/s640x960/b47ed793ea15b98d3f7b757064754f72d376d0e8.jpg)
  
-<div align="center"> Josef, peachfuzz, Guardian and Waxwell's no1 fan 🦴 </div>
+<div align="center"> Josef, Guardian, Rick Prime, Dallas winston and Waxwell's no1 fan 🦴 </div>
 
 
 
